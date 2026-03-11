@@ -1,3 +1,5 @@
+<p align="center"> hihi im elliot / elijah , heres my read me (o´∀`o)
+  
 <img src="https://i.pinimg.com/736x/68/0b/f4/680bf4dd97d34ad57c42ad6736a2bb47.jpg" alt="Story pin image"/>
 <p align="center"> he / him / himself . bipolar & gender dysphoria im always open to c+h unless old friends and or exes . dni: bea, vincent, anyone friends with bea pls pls dni i block freely but if you flirt with me in any way shape or form you will be blocked. i love my boyfriend sorry not sorry
 <p align="center"> gay and taken !! i love you camron mwah mwahhh . int: hazbin hotel / any other fandoms im in , mutuals and friends also radiostatic / staticbelle / staticapple
@@ -13,3 +15,6 @@
 ![f38d8cdd189034367bdff2451c3cbcee](https://github.com/user-attachments/assets/4dd63978-2d92-4cb1-a69d-c5f219b16f5e)
 
 <p align="center"> i love my amazing boyfriend camron so much (1yr 3mon) <3 camron if you see this i love you baby
+
+![Screenshot_20260311_113218_DuckDuckGo](https://github.com/user-attachments/assets/a391244d-cf81-496b-9fc5-c2c4b14d0d90)
+![Screenshot_20260311_113317_Spotify](https://github.com/user-attachments/assets/9a6b8e30-3f38-4976-bd12-8d98c422e1c4)
